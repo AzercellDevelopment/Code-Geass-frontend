@@ -1,3 +1,12 @@
+
+Mikayil Abdulayev
+Shamil Mehdiyev
+
+
+
+
+
+
 Deployed on:  https://azercell-2022.web.app
 
 
